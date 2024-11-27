@@ -11,3 +11,5 @@
 [<font size=5>"ボツになりかけた奴です。"</font>](https://twitter.com/LeoLeonardK10/status/1473198072612151300)
 
 [<font size=5>"あーん待ちアロナとよくわかってないプラナ"</font>](https://twitter.com/yukkieeeeeen/status/1686878483694452738)
+
+[<font size=5>"🕊"</font>](https://www.pixiv.net/artworks/124662710)
